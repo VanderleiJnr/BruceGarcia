@@ -4,3 +4,4 @@
 > Looking for more knowledge, to become fullstack dev.   <br>
 > Adm at Brasil Capital (FiveM Roleplay server).<br>
 > contacts: [Discord](https://discord.gg/brasilcapital) - [Email](vanderlei.atjr@gmail.com) - [Social Media]()  - [LinkedIn]()<br>
+aaa 
